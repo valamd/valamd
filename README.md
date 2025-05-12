@@ -92,7 +92,7 @@
 ## 💡 Quote of the Day
 
 <p align="center">
-  <img src="https://imageplaceholder.github.io/quotes/motivational.png" alt="Motivational Quote"/>
+  <img src="https://wallpapercave.com/wp/wp2134520.jpg" alt="Motivational Quote"/>
 </p>
 
 ---
